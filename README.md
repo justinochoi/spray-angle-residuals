@@ -1,1 +1,1 @@
-Spoiler: It does not. But maybe someone else can crack the code? 
+Spoiler: Yes, but you're still better off using Baseball Savant's wOBAcon. But maybe someone else can crack the code? 
